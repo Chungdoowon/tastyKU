@@ -7,7 +7,11 @@ http://annasi65.blog.me/220756836340
 
 
 ##*정대후문
+지어미
+http://blog.naver.com/dhtnfld/100171150682
 
+닭한마리
+http://blog.naver.com/daldalcoco/220615819065
 
 ##*안암역
 
@@ -32,12 +36,20 @@ http://blog.naver.com/27193642/220577331160
 911온반
 http://blog.naver.com/1ssseohyun1/220757768150
 
+황소식당
+애기능 학생회관 쪽 후문 나가서 바로 있는 식당 
+
+##*안암오거리
+
 
 ##*정문
 
 하이픈
 http://blog.naver.com/cocolove93/220087864289
 
+코케코코
+http://blog.naver.com/sleeplog/220725903702
 
 ##*법대후문
+
 
